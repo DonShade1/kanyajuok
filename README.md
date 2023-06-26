@@ -1,0 +1,2 @@
+# kanyajuok
+Kanyajuok 16
